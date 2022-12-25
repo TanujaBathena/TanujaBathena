@@ -11,6 +11,8 @@
 
 - ⚡ Fun fact **I like to cook but I don't know how to:)**
 
+- ☕ I love to discuss about Psychology, dance over a cup of coffee!
+
 <h3 align="left">Connect with me:</h3>
 <center>
 
